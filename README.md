@@ -20,6 +20,9 @@ I do NOT support any malicious use of this software. This is for educational pur
 |[Download]()|[Video]()|[Telegram](https://t.me/+KDNcYxey-L00ODRl)|[tencentQQ](https://jq.qq.com/?_wv=1027&k=wSFyixbk)|
 
 # 功能展示
+![20230212191735](https://user-images.githubusercontent.com/62233800/218308156-b5a21e97-9db9-4be8-97a1-7cf60ed98bf8.jpg)
+![20230212191821](https://user-images.githubusercontent.com/62233800/218308165-8d8c2a94-da07-45ac-a313-b38ed9fbe9bb.jpg)
+![20230212191838](https://user-images.githubusercontent.com/62233800/218308167-c3dda063-c89d-459e-9d22-c56005c90695.jpg)
 
 ## 功能介绍
 💠𝗙𝗶𝗹𝗲 𝗠𝗮𝗻𝗮𝗴𝗲𝗿
